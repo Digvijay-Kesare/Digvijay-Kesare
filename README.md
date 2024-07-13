@@ -1,4 +1,4 @@
-# Hi there, I'm [Digvijay]! 👋
+# Hi there, I'm Digvijay! 👋
 
 ## About Me
 
